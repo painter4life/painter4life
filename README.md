@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @painter4life
+- 👋 Hi, I’m @painter4life aka Annebelle Phanor
 - 👀 I’m interested in becoming a data analyst and working in cybersecurity 
 - 🌱 I’m currently learning software security skills 
 - 📫 How to reach me annebellecphanor@gmail.com
